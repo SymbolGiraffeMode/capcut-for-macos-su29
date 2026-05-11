@@ -1,4 +1,4 @@
-
+CapCut for macOS best Extension: template-library & HDR-editing offers the most advanced CapCut for macOS extension, with template-library and HDR-editing. Ideal for macOS
 
 
 
